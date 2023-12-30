@@ -5,24 +5,24 @@ I'll still try to source for other regions too!
 ## Shopping for Instruments
 
 ## Online Stores
-[Amazon (🇩🇪German/Deutscher🇩🇪 Link)](https://www.amazon.de)\
+[Amazon (int. 🌐, 🇩🇪 German/Deutscher 🇩🇪 Link)](https://www.amazon.de)\
 Obviously you can get most brands for new and used on amazon, plenty of different sites for your region. (typically the Spanish site has more expensive tech than the German, while UK might have the cheapest stuff, but has plenty of customs charges because of Brexit :/)
 
-[eBay](https://www.ebay.com)\
+[eBay (intl. 🌐)](https://www.ebay.com)\
 Yet again, most instruments in general can be gotten second hand on eBay!
 
-[Adverts.ie](https://www.adverts.ie)\
+[Adverts.ie (Ireland)](https://www.adverts.ie)\
 Second-hand User Selling Platform, like Craigslist.
 
-[Donedeal](https://www.donedeal.ie/music)\
+[Donedeal (Ireland)](https://www.donedeal.ie/music)\
 Second-hand User Selling Platform, like Craigslist.
 Mostly dealing in cars (i got lost on the site lol), they also have a music section!
 
-[Gear4Music](https://www.gear4music.ie)\
+[Gear4Music (EU)](https://www.gear4music.ie)\
 Cheap E-Guitars: Squier, Jet, G4M / Gear4Music, Hartwood, Guitarworks (diy kits!), SubZero, Höfner, Vintage, Jackson, Ibanez, Yamaha, Cort, 
 A lot of their own cheap guitar lines, along with many other big name brands, Fender, Gibson. Usually free shipping to Ireland.
 
-[Thomann](https://www.thomann.de/ie/index.html)\
+[Thomann (EU)](https://www.thomann.de/ie/index.html)\
 Carries high-end brands and < €300 guitars like Harley Benton, (Fender) Squier, Ibanez, Cort.
 Cheap E-Guitars: Harley Benton, (Fender) Squier, Ibanez, Cort, Höfner, Jackson, Yamaha.
 
