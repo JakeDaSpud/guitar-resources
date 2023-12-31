@@ -41,33 +41,33 @@ you don't need to read this of course... but i'm surely gonna include it!
 ---
 
 ### 🌟 dream gear 🌌
-- fender hello kitty pickguard mustang
-- fender jazzmaster (not picky on colour)  (squier cv 60s offwhite?)
-- fender acoustasonic player? (jazzmaster, ice blue)\
+fender hello kitty pickguard mustang\
+fender jazzmaster (not picky on colour)  (squier cv 60s offwhite?)\
+fender acoustasonic player? (jazzmaster, ice blue)\
 
-- fender fullerton precision bass ukulele (olympic white)
-- fender fullerton telecaster / jazzmaster / stratocaster ukulele (lake placid blue tele / vintage white jazz / surf green strat)\
+fender fullerton precision bass ukulele (olympic white)\
+fender fullerton telecaster / jazzmaster / stratocaster ukulele (lake placid blue tele / vintage white jazz / surf green strat)\
 
-- light yellow (buttercream? cream?) stratocaster
-- a honeyburst guitar (there's a squier affinity strat fsr in it rn...)
-- shell pink guitar\
+light yellow (buttercream? cream?) stratocaster\
+a honeyburst guitar (there's a squier affinity strat fsr in it rn...)\
+shell pink guitar\
 
-- gibson es-335 (green or red/wine)\
+gibson es-335 (green or red/wine)\
 
-- hartwood charger (strawberry milkshake)
-- hartwood revival vibrato semi-acoustic (jade green or cherry red, probs red?)\
+hartwood charger (strawberry milkshake)\
+hartwood revival vibrato semi-acoustic (jade green or cherry red, probs red?)\
 
-- subzero paradigm semi-hollow (trans black)\
+subzero paradigm semi-hollow (trans black)\
 
-- yamaha pacifica 112j (not 112v, old violin burst)
-- yamaha revstar rse20/rss20 (swift blue)\
+yamaha pacifica 112j (not 112v, old violin burst)\
+yamaha revstar rse20/rss20 (swift blue)\
 
-- jet js-300 (roasted maple, blue)
-- jet js-400 (rosewood, pink OR vintage yellow)
-- jet jt-300 (roasted maple, dark blue)\
+jet js-300 (roasted maple, blue)\
+jet js-400 (rosewood, pink OR vintage yellow)\
+jet jt-300 (roasted maple, dark blue)\
 
-- ibanez ICHI10 ichika nito (vintage white)
-- ibanez TOD10N tim henson (black)
+ibanez ICHI10 ichika nito (vintage white)\
+ibanez TOD10N tim henson (black)
 
 ---
 
