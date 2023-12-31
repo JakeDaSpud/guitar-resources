@@ -31,7 +31,7 @@ you don't need to read this of course... but i'm surely gonna include it!
 ### production gear
 **mini amp:** danelectro n-10 honeytone mini amp (aqua (really it's more like a surf green...))\
 **even mini-er amp:** vox amPlug (lead)\
-**big amp:** big vintage amp my uncle gave me i forget name (brown)\
+**big amp:** solton craaft chorus 50 (brown)\
 **DAC:** arturia MiniFuse 2 (black)\
 **vocal mic:** shure sm58se\
 **1/4" Cable:** stagg 10ft (black, straight-90 degree)\
