@@ -53,7 +53,7 @@ you don't need to read this of course... but i'm surely gonna include it!
 - yamaha pacifica 112j (not 112v, old violin burst)
 - yamaha revstar rse20/rss20 (swift blue)
 - jet js-300 (roasted maple, blue)
-- jet js-400 (rosewood, pink)
+- jet js-400 (rosewood, pink OR vintage yellow)
 - jet jt-300 (roasted maple, dark blue)
 
 ---
