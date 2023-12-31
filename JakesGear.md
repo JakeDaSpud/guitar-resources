@@ -49,6 +49,12 @@ you don't need to read this of course... but i'm surely gonna include it!
 - **fender ukuleles**
   - fender fullerton precision bass ukulele (olympic white)
   - fender fullerton telecaster / jazzmaster / stratocaster ukulele (lake placid blue tele / vintage white jazz / surf green strat)
+ 
+- **fender basses**
+  - fender player jaguar (sea foam green)
+
+- **(fender) squier stuff**
+  - squier 40th jazz bass (olympic white)
 
 - **any brand!**
   - light yellow (buttercream? cream?) stratocaster
