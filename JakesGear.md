@@ -28,7 +28,7 @@ you don't need to read this of course... but i'm surely gonna include it!
 
 ---
 
-### production gear
+### 🎙️ production gear 💽
 **mini amp:** danelectro n-10 honeytone mini amp (aqua (really it's more like a surf green...))\
 **even mini-er amp:** vox amPlug (lead)\
 **big amp:** solton craaft chorus 50 (brown)\
