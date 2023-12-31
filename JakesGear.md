@@ -36,3 +36,20 @@ you don't need to read this of course... but i'm surely gonna include it!
 **1/4" Cable:** stagg 10ft (black, straight-90 degree)\
 **DAW:** audacity\
 **sequencer:** [online sequencer](https://onlinesequencer.net)
+
+---
+
+# 🌟 dream gear 🌌
+- light yellow (buttercream? cream?) stratocaster
+- shell pink guitar
+- hello kitty pickguard mustang
+- jazzmaster (not picky on colour)  (squier cv 60s offwhite?)
+- epiphone es335 (green or red/wine)
+- hartwood revival vibrato semi-acoustic (jade green or cherry red, probs red?)
+- a honeyburst guitar (there's a squier affinity strat fsr in it rn...)
+- hartwood charger (strawberry milkshake)
+- subzero paradigm semi-hollow (trans black)
+- yamaha pacifica 112j (not 112v, old violin burst)
+- yamaha revstar rse20/rss20 (swift blue)
+- jet js-300 (roasted maple, blue)
+- 
