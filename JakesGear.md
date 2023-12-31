@@ -55,6 +55,14 @@ you don't need to read this of course... but i'm surely gonna include it!
 
 - **(fender) squier stuff**
   - squier 40th jazz bass (olympic white)
+  - squier mini jazzmaster (olympic white, could be for my "***Atlas***" custom!)
+  - squier classic vibe 70s jaguar (surf green)
+  - squier sonic esquire tele (ultraviolet, this is for my "***Eva***" custom!)
+  - squier classic vibe '50s tele (FSR vintage blonde)
+  - squier classic vibe '60s tele thinline (FSR aztec gold)
+  - squier sonic mustang (FSR graffiti yellow)
+  - squier classic vibe 60s competition mustang (FSR lake placid blue)
+  - squier contemporary stratocaster (sky blue metallic)
 
 - **any brand!**
   - light yellow (buttercream? cream?) stratocaster
