@@ -7,13 +7,13 @@ you don't need to read this of course... but i'm surely gonna include it!
 **first electric guitar:** "***Conch***" the fender squier affinity strat sss (seafoam green)\
 **travel electric:** "***Odyssey***" the hofner shorty (red)\
 **sg:** "***Ten [天]***" the unbranded sg copy (royal blue wood grain)\
-**les paul:** "***Añejo***" the burny les paul (vintage gold-top)\
+**les paul:** "***Añejo***" the burny les paul (vintage gold-top)
 
 **acoustic:** "***Stella***" the fender newporter player (ice blue satin)\
-**first acoustic guitar:** "***Bolt***" the herald hl34 classical\
+**first acoustic guitar:** "***Bolt***" the herald hl34 classical
 
 **ukulele:** "***Scallop***" the fender venice soprano (shell pink)\
-**first ukulele:** "***Tony***" the  martin smith soprano (black)\
+**first ukulele:** "***Tony***" the  martin smith soprano (black)
 
 **electric drum kit:** random amazon drums\
 **keyboard:** casio CTK-1500\
@@ -41,40 +41,40 @@ you don't need to read this of course... but i'm surely gonna include it!
 ---
 
 ### 🌟 dream gear 🌌
-- fender guitars
+- **fender guitars**
   - fender hello kitty pickguard mustang
   - fender jazzmaster (not picky on colour)  (squier cv 60s offwhite?)
   - fender acoustasonic player? (jazzmaster, ice blue)
 
-- fender ukuleles
+- **fender ukuleles**
   - fender fullerton precision bass ukulele (olympic white)
   - fender fullerton telecaster / jazzmaster / stratocaster ukulele (lake placid blue tele / vintage white jazz / surf green strat)
 
-- any brand!
+- **any brand!**
   - light yellow (buttercream? cream?) stratocaster
   - a honeyburst guitar (there's a squier affinity strat fsr in it rn...)
   - shell pink guitar
 
-- gibson
+- **gibson**
   - gibson es-335 (green or red/wine)
 
-- hartwood
+- **hartwood**
   - hartwood charger (strawberry milkshake)
   - hartwood revival vibrato semi-acoustic (jade green or cherry red, probs red?)
 
-- subzero
+- **subzero**
   - subzero paradigm semi-hollow (trans black)
 
-- yamaha
+- **yamaha**
   - yamaha pacifica 112j (not 112v, old violin burst)
   - yamaha revstar rse20/rss20 (swift blue)
 
-- jet
+- **jet**
   - jet js-300 (roasted maple, blue)
   - jet js-400 (rosewood, pink OR vintage yellow)
   - jet jt-300 (roasted maple, dark blue)
 
-- ibanez
+- **ibanez**
   - ibanez ICHI10 ichika nito (vintage white)
   - ibanez TOD10N tim henson (black)
 
