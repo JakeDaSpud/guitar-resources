@@ -1,10 +1,12 @@
 # jake's guitar🎸 / music🎶 resources
 
-THIS IS NOT THE ONLY FILE YOU CAN READ! Check out the other .md files for more reading material!\
-go make some music :)
+❕❗THIS IS NOT THE ONLY FILE YOU CAN READ!❗❕\
+Check out the other .md files for more reading material!\
+🎶go make some music :)🎶
 
-this can also be seen as a general music resource document. 
-websites and useful resources for beginner guitarists, stuff i've found that would've been useful for me starting out years ago!
+- this can also be seen as a general music resource document. 
+- websites and useful resources for beginner guitarists
+- stuff i've found that would've been useful for me starting out years ago!
 
 ## websites
 
