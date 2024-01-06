@@ -2,7 +2,13 @@
 
 ❕❗THIS IS NOT THE ONLY FILE YOU CAN READ!❗❕\
 Check out the other .md files for more reading material!\
-🎶go make some music :)🎶
+🎶go make some music :)🎶\
+
+files:\
+[#1 Music Shops](MusicShops.md) - Online and Physical Stores where you can buy new and used instruments.\
+[#2 How to start on your instrument!](BeginnerPlayers.md) - How to get acquainted with your instrument, similar process for most instruments!\
+[#3 Areas of Theory](AreasOfTheory.md) - Different sections of Music Theory to search up and play around with understanding.\
+[#n Jake's Gear](JakesGear.md) - My current gear and dream gear! Not useful for learning music yourself per se...\
 
 - this can also be seen as a general music resource document. 
 - websites and useful resources for beginner guitarists
