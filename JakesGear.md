@@ -91,6 +91,7 @@ you don't need to read this of course... but i'm surely gonna include it!
 - **ibanez**
   - ibanez ICHI10 ichika nito (vintage white)
   - ibanez TOD10N tim henson (black)
+  - ibanez FRH10N-RGF (rose gold metallic flat)
 
 ---
 
